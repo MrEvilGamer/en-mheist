@@ -1,5 +1,6 @@
 Hey There! Evil This Side
 
+all the support will be provided 
 Join my Discord for support - 
 https://discord.gg/8WwrB63Ger
 
